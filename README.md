@@ -8,3 +8,10 @@ I received great assistance with my tutor, but it was really fast-paced and I wo
 
 There was a problem with one of the videos that required me to stop and look around for the answers for what I needed to do to continue. Shortly after that interuption, I ran into more difficulty adn there wasn't a sample of the code I should have eneded with, so I was completely lost.
 
+![image](https://user-images.githubusercontent.com/116729611/202017482-de55bd85-6dc9-470a-bba8-dcb1c2a64f74.png)
+
+![image](https://user-images.githubusercontent.com/116729611/202017327-3dd2532a-03d0-4fbc-88f0-f3b134bbf5a2.png)
+
+https://files.slack.com/files-pri/T044SE2P487-F04AYLW6EJ1/image.png
+
+These are a few examples of the problems I've encountered just to share that I really did try.
